@@ -1,0 +1,1 @@
+# 2027_nozawa_ski_trip
